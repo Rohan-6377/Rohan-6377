@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rohan Prajapat.
 - 👀 I’m a Fronted Developer.
 - 🌱 I’m currently Doing Freelancing.
-- 💞️ I’m looking to Best Team.
+- 💞️ I’m looking for Best Team.
 - 📫 How to reach me - From My Social Media.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: All Things.
